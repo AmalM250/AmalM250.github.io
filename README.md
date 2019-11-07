@@ -1,5 +1,5 @@
 # AmalM250.github.io
 Hello my name is Amal and I am a sophomore at HSHMC.
-I am obsessed with chocolate and if you have any you better give it to me before I abuse you. If you don't believe ask my other victims.
-Beware you have been warned.
+I like chocolate and i would love it if you share some with me.
+Do not be greedy and have some common sense.
 Thank you for your time.
